@@ -1,5 +1,3 @@
-# Mohit Shrivastava
-
 # 🕯️
 
 > **They say a figure once walked the forest between thought and form.**  
